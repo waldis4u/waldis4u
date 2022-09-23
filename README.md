@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @waldis4u
-- 👀 I’m interested in meeting and making a new friends to guide me in my programming course
+- 👀 I’m interested in meeting and making a new friends to guide me in my programming career.
 - 🌱 I’m currently coding with Java, Python, JavaScript, HTML, CSS and Flutter etc.
 - 💞️ I’m looking to collaborate on project being big or small and i believe with your guide, i will do just great
 - 📫 To reach me? Whatsapp (+233545498611), Facebook (Enock Walasi) Linkedin (https://www.linkedin.com/in/enock-walasi-579586217/).
